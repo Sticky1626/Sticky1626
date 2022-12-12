@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sticky1626
-- I am a YouTuber looking to grow my channel
+- I am a YouTuber looking to grow my channel / https://youtube.com/@Sticky1626
 - I upload most of my projects on GitHub. Please join the discord and subscribe to me to support
 - 📫 you can contact me on discord / https://discord.gg/Sc7txJbrzG
 
